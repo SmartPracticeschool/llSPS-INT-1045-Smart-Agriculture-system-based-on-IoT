@@ -9,4 +9,6 @@ i am uploaded my
       5) screenshot of process.
 
 
-I am 100% completed by internship at https://smartinternz.com/
+I am 100% completed my internship at https://smartinternz.com/ .
+
+Thanks to smartinternz Team.
